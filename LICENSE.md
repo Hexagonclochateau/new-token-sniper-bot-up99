@@ -1,4 +1,4 @@
-# 
+# quantitative new token sniper bot | MEV-detection + rug-pull-detection offers the most advanced new token sniper bot, with MEV-detection and rug-pull-detection. Ideal for
 
 
 
